@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Baurzhan56 and my name is Baurzhan)oObviously) Sounds strange but its true. Im from Russia but nationality is kazakh.
+- 👋 Hi, I’m  Baurzhan)  Im from Russia but nationality is kazakh. Might be not so important but anyway.
 - 👀 I’m interested in Game production because I love games so much. I want to be a part of these masterpieces.
 - 🌱 I’m currently learning C#, hope youll help me and vise verse in this uneasy work
 - 💞️ I’m looking to collaborate on with guys or girls who has passion about gaming and programming 
